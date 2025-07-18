@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-<!--
+<!--![Image](https://github.com/user-attachments/assets/3673b947-1cb8-49d5-ab59-765c8fe1417a)
 **Hywelx/Hywelx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
