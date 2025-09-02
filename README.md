@@ -1,3 +1,3 @@
 ## beware of these freaks ,,  [pressure fans plspls int i need more ppl to play with]
 
-<img width="798" height="810" alt="Image" src="https://github.com/user-attachments/assets/48b3a277-9c49-42fb-8aaa-a3c52d18fabc" />
+<img width="598" height="610" alt="Image" src="https://github.com/user-attachments/assets/48b3a277-9c49-42fb-8aaa-a3c52d18fabc" />
